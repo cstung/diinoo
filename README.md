@@ -1,0 +1,2 @@
+# diinoo
+Random Thoughts
